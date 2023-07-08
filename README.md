@@ -1,4 +1,4 @@
-### Olá tudo bem ? Eu sou o Victor Cardozo Garcia👋
+### Olá tudo bem ? Eu sou o Victor Cardozo Garcia👋👋
 
 
 - 🔭 Hoje trabalho em um escritório de contabilidade 
